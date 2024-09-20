@@ -4,4 +4,5 @@
 
 ### Slide: https://www.canva.com/design/DAGQqXLMBG8/3jQHPGazOvwrCtOX11h-mg/edit
 
-Exemplo: https://www.youtube.com/shorts/WWC2ZbVhpcI
+Exemplo 1: https://www.youtube.com/shorts/WWC2ZbVhpcI
+Exemplo 2: https://www.youtube.com/shorts/74h9fxB5P4c
